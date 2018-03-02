@@ -1,2 +1,2 @@
 # hogancn.github.io
-小刚博客
+开心就好
